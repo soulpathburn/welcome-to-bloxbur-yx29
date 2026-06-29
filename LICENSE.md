@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://soulpathburn.github.io/welcome-to-bloxbur-yx29/) |
  |---------------------|----------------------:|
 
 
